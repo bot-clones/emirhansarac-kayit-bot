@@ -1,2 +1,3 @@
-# emirhansarac-kayit-bot
-Published by emirhaN#6696 (683036205453148190)
+## BU ALTYAPI EMİRHAN SARAÇ TARAFINDAN YAPILMIŞTIR! V12 SÜRÜMÜNDE ÇALIŞIR!
+## V11 SÜRÜMÜNÜ [HEMEN İNDİR](https://bit.ly/3jbr6RX)
+-----
